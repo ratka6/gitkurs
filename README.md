@@ -1,3 +1,3 @@
 Krzysztof to pała!
-Nie wiem co się dzieje na jego repo.
+Nie wie co się dzieje na jego repo.
 ALE LAMUS!!!
